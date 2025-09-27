@@ -1,0 +1,1 @@
+# HowRUGoingToBeACoFounderWhenYouWillBeDividingUpYourAssetsForAtLeast2Yrs-ThatsYourBullshitNotMine
