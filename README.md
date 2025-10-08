@@ -9,3 +9,5 @@ who is going to fk you like me, so u learned that the hard way, what a chaotic m
 im going to also be googled and surveiled daily for those 2+ yrs, by ppl ive never met before in brooklyn of all places, theyre going to want to put two and two together, and they prolly will
 
 my advice to u is dont say or do anything that isnt advised by ur future lawyer. and second, publicly, i dont exist in ur world / universe. make one mistake and u can get caught up in this for yrs and yrs and yrs.
+
+my writing somewhere publicaly i was at m s k c c in 2025 is going to make ppl think, well right next door, thats prolly when they met.
