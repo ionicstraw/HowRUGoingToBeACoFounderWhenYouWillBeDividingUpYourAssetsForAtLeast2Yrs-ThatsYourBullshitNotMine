@@ -7,3 +7,5 @@ ure going to be googled and surveiled daily for those atleast 2 yrs by friends a
 who is going to fk you like me, so u learned that the hard way, what a chaotic mess ure in
 
 im going to also be googled and surveiled daily for those 2+ yrs, by ppl ive never met before in brooklyn of all places, theyre going to want to put two and two together, and they prolly will
+
+my advice to u is dont say or do anything that isnt advised by ur future lawyer. and second, publicly, i dont exist in ur world / universe. make one mistake and u can get caught up in this for yrs and yrs and yrs.
