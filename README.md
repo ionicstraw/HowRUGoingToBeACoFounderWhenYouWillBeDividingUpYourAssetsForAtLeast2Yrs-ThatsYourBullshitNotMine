@@ -5,3 +5,5 @@ its actually not a good idea for me to interact with ur github bc my github prof
 ure going to be googled and surveiled daily for those atleast 2 yrs by friends and lawyers for any mistake they can get on u
 
 who is going to fk you like me, so u learned that the hard way, what a chaotic mess ure in
+
+im going to also be googled and surveiled daily for those 2+ yrs, by ppl ive never met before in brooklyn of all places, theyre going to want to put two and two together, and they prolly will
