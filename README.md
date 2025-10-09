@@ -21,3 +21,6 @@ ure an intelligent person, and ure a nice person, but u do dumb sht which is rea
 i just checked, it doesnt say on my offer letter from m s k c c that i was remote, even tho i was. u know whos going to grab hold of that and not let it go, the lawyer on the other side bc that puts us in close proxmity, and the lawyer is going to say "in my experience of seeing other cases, thats the smoking gun" and even further "thats where they met, thats what he was doing" no one but the lawyer is going to be obsessed with that, gotta kill that connection/idea very early on cuz it would keep snowballing. would have been nice if it said on my offer letter i was remote (it did on sampled's offer letter)
 
 if the lawyer on the other side is a woman (most likey gonna be), with fake boobs, lips and hair, louboutins with a power suit, who in a thick new york accent says things like "you know how men are HES HIDING SOMETHING" omgg ure not just going to be wringed like a towel, you're going to be put through a road asphalt roller
+
+>  with fake boobs, lips and hair, louboutins with a power suit
+i would want a lawyer like that tho ... if i went to law school i would have become that kind of a lawyer, absolutely, somebody's paying me to talk sht about the other person in court, hell yeah id want to do that for a living
