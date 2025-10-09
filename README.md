@@ -11,3 +11,6 @@ im going to also be googled and surveiled daily for those 2+ yrs, by ppl ive nev
 my advice to u is dont say or do anything that isnt advised by ur future lawyer. and second, publicly, i dont exist in ur world / universe. make one mistake and u can get caught up in this for yrs and yrs and yrs.
 
 my writing somewhere publicaly i was at m s k c c in 2025 is going to make ppl think, well right next door, thats prolly when they met.
+
+i dont want to get obsessed with this bc its your thing, but fyi, your physical whereabouts, starting feb 2025 when i started at m s k c c could be under scrutiny, is there this could go for u, i dont think i should write it anywhere publicly even now bc it'll get cached until ur whole thing is done which could take years.
+
